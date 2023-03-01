@@ -231,6 +231,3 @@ Just before you get your phone out, another person walks into the break room.
 The stranger quickly disappeared and a short man in an expensive suit, with a slight baldness, in his early fifties or sixties, entered the room. Without waiting for you to speak, he said with a subtle, barely noticeable smile:
 
 `-` Oh, you must be Thomas. Truly magnificent performance of the test work. I hope you weren't intimidated by our lovely friend ASI Junior, she spoke highly of you. So, let me tell you more about what we do here in general and what is your role in our company...
-
-
-💡 [Tap here](https://forms.yandex.ru/u/6357f54d3e9d0836923d1203/) **to leave your feedback on the project**. Pedago Team really tries to make your educational experience better.
